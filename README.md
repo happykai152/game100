@@ -6,4 +6,4 @@
 ![NKFUST](banner15.gif "高第一")
 
 [![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME"
-終極密碼
+終極密碼YA
